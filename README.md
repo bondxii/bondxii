@@ -8,7 +8,7 @@
 
 
 > [!IMPORTANT]
-> Currently searching for a work as `developer` and want to get as much `expirience` as I can handle😈
+> Currently searching for a work as `developer` and want to get as much `experience` as I can handle😈
 
 <!---
 bondxii/bondxii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
